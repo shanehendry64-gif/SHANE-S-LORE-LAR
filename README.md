@@ -1,2 +1,1 @@
-# SHANE-S-LORE-LAR
-SHANE’S LORE LAW 
+# Shane-s-lore
